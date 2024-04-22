@@ -1,1 +1,1 @@
-# Karine-Gabi.
+# Assinatura de conteúdo 
