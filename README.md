@@ -1,1 +1,1 @@
-# Assinatura de conteúdo #
+# Assinatura de conteudo
